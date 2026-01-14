@@ -1,2 +1,2 @@
 # Brutal-Right-Wing
-Brutal Right Wing Website.
+I made This Website For my group. if that matters
